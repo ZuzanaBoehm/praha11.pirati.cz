@@ -35,3 +35,4 @@ Jihoměstští Piráti ctí ducha demokracie a jsme toho názoru, že i opozičn
 Česká pirátská strana získala v komunálních volbách 18,55 % a 9 zastupitelských mandátů z celkových 45. Ze sedmi politických stran a hnutí, které mají své zástupce v novém zastupitelstvu Městské části Praha 11, se stala druhým nejsilnějším subjektem.
  
 Piráti na Praze 11 vyjednávali v souladu s [předem schválenou a transparentně zveřejněnou povolební strategií](/komunalni-volby-2018/povolebni-strategie/), která jasně definuje možnosti vzniku a podpory koalice a Rady městské části.
+.
